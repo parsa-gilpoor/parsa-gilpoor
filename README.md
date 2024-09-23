@@ -18,8 +18,8 @@ Research and development in Neural Network Optimization
 Feel free to reach out through:
 
 GitHub Issues or Discussions
-[Your Email Address]
-LinkedIn [Your LinkedIn Profile]
+[amirparsagilpoo@gmail.com]
+instagram [amirparsa_gilpour]
 😄 Pronouns
 He/Him
 
